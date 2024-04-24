@@ -5,7 +5,7 @@ I am <B> Swapnaja Kulkarni.
 
 I have completed <B> Masters in Computer Application.
 
-I take pride to have <B> 8 plus years of experinece </B> in being a versatile professional with diverse skills.
+I take pride to have <B> 8 plus years of experience</B> in being a versatile professional with diverse skills.
 
 Being adaptable and flexible in any domain procured  <B> strong knowledge of of programming and deep intrest of analytics. 
 
